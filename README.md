@@ -11,6 +11,8 @@ Synopsis: To Kill a Mockingbird is both a young girl's coming-of-age story and a
 
 ![download](https://user-images.githubusercontent.com/101855790/158948991-f8434b16-909b-49ce-848a-4f05be4125c3.jpg)
 
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 ## The Midnight Library
 By: Matt Haig
 
@@ -23,3 +25,4 @@ Sypnosis: Matt Haig's unique novel The Midnight Library ponders the infinite pos
 
 ![1](https://user-images.githubusercontent.com/101855790/158951676-beaeb60c-ccb2-4d47-a772-87b862680787.png)
 
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------
