@@ -1,4 +1,3 @@
-# Library
 ## To Kill a Mocking Bird 
 By: Harper Lee
 
