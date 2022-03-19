@@ -54,3 +54,44 @@ Sypnosis: After a marvelous year at Hogwarts School of Witchcraft and Wizardry, 
 ![hp2](https://user-images.githubusercontent.com/101855790/159103099-07be0702-badd-4d8f-bb15-4d489ccf3621.jpg)
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+## Harry Potter and The Prizoner of Azkaban
+By: J.K. Rowling
+
+Link: <https://drive.google.com/file/d/1FAUXiAM1F0bO86jfSbHlqszqtRYjeQTr/view?usp=sharing>
+
+Sypnosis: Harry Potter's third year at Hogwarts starts off badly when he learns deranged killer Sirius Black has escaped from Azkaban prison and is bent on murdering the teenage wizard. While Hermione's cat torments Ron's sickly rat, causing a rift among the trio, a swarm of nasty Dementors is sent to protect the school from Black. A mysterious new teacher helps Harry learn to defend himself, but what is his secret tie to Sirius Black?
+
+
+
+
+![hp3](https://user-images.githubusercontent.com/101855790/159103583-89ff9c1f-b698-4a26-ae97-7a30bd8f84da.jpg)
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+## Harry Potter and The Goblet of Fire
+By: J.K. Rowling
+
+Link: <https://drive.google.com/file/d/1b7yI44FEdJAhh4ehJ7QAeRvJ2RyWiJb6/view?usp=sharing>
+
+Sypnosis: It follows Harry Potter, a wizard in his fourth year at Hogwarts School of Witchcraft and Wizardry, and the mystery surrounding the entry of Harry's name into the Triwizard Tournament, in which he is forced to compete.
+
+
+
+
+![hp4](https://user-images.githubusercontent.com/101855790/159103855-361df02e-ca4e-4073-9f09-2d7dbba0785e.jpg)
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+## Harry Potter and The Order of Phoenix
+By: J.K. Rowling
+
+Link: https://drive.google.com/file/d/1eiOZNiGJtFlXg8nPlhEgM8znq4WSi9KS/view?usp=sharing
+
+Sypnosis: Now in his fifth year at Hogwarts, Harry learns that many in the wizarding community do not know the truth of his encounter with Lord Voldemort. Cornelius Fudge, minister of Magic, appoints his toady, Dolores Umbridge, as Defense Against the Dark Arts teacher, for he fears that professor Dumbledore will take his job. But her teaching is deficient and her methods, cruel, so Harry prepares a group of students to defend the school against a rising tide of evil.
+
+
+
+
+![hp5](https://user-images.githubusercontent.com/101855790/159103966-1b377035-6df2-465e-82eb-58d1dc9fc6ee.jpg)
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
